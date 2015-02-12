@@ -1,1 +1,1 @@
-here is my readme the cake is a lie
+© 2015 wanderer
