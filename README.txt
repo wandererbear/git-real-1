@@ -1,1 +1,1 @@
-© 2015 wanderer
+xyz
